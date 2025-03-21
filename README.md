@@ -1,2 +1,2 @@
 ### Description
-super puper project
+super pup
